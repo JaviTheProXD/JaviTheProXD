@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JaviTheProXD
+- 👀 I’m interested in karate
+- 🌱 I’m currently learning how to be an artist
+- 💞️ I’m looking to collaborate on programers
+- 📫 How to reach me jaguzmanrey@gmail.com
